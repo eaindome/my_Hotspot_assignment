@@ -1,0 +1,1 @@
+# my_Hotspot_assignment
